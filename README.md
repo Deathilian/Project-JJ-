@@ -1,2 +1,2 @@
 # Project-JJ-
-Gamisi erxetai!! 
+Gamisi erxetai sto bill!! 
